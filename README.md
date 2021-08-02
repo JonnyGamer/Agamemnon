@@ -6,3 +6,5 @@ One day Agamemnon was fighting a battle and decimated his enemies with his Greek
 Agamemnon power. Agamemnon!
 
 Agamemnon powers it over with his amazing [projects](https://c.gethopscotch.com/p/11tedee2kj).
+
+![Agamemnon with Imagery](\Agamemnon.png)
