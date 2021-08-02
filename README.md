@@ -8,3 +8,6 @@ Agamemnon power. Agamemnon!
 Agamemnon powers it over with his amazing [projects](https://c.gethopscotch.com/p/11tedee2kj).
 
 ![Agamemnon with Imagery](/Agamemnon.png)
+
+# Agamemnon with Agamemnon you if you aren't looking!
+You see, this poses a serious threat to your person.
