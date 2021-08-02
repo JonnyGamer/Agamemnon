@@ -7,4 +7,4 @@ Agamemnon power. Agamemnon!
 
 Agamemnon powers it over with his amazing [projects](https://c.gethopscotch.com/p/11tedee2kj).
 
-![Agamemnon with Imagery](\Agamemnon.png)
+![Agamemnon with Imagery](https://github.com/JonnyGamer/Agamemnon/blob/main/Agamemnon.png)
