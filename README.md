@@ -25,3 +25,5 @@ Agamemenonon can help us be more positivie he's so good at it!
 Maybe let's be banned for being so pososososotitive!
 
 ![Agamemnon Brain Expanding Meme](/AgamemnonMeme.png)
+
+![Agamemnon Brain Expanding Meme](/InkoChan.png)
