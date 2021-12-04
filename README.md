@@ -26,4 +26,4 @@ Maybe let's be banned for being so pososososotitive!
 
 ![Agamemnon Brain Expanding Meme](/AgamemnonMeme.png)
 
-![Agamemnon Brain Expanding Meme](/InkoChan.png)
+![Agamemnon Brain Expanding Meme](/InkoChan.jpg)
